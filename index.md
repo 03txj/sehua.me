@@ -1,7 +1,7 @@
  <html>
 	<head>
         <meta charset="UTF-8" />
-        <title>4438X,4438x成人网-全国最大的色情人网站</title>
+        <title>色花堂-全国最大的色情人网站</title>
         <style>
             html,
             body {
@@ -59,31 +59,28 @@
 
     <body>
         <div class="main">
- <h1>4438x成人网-最新发布地址</h1>
+ <h1>色花堂-最新发布地址</h1>
             <div class="content">
                 <div class="content-top">
                     <h2>请大家 Ctrl+D 收藏本页</h2>
                     <ul>
                         <li>
-                            4438x成人网最新地址
-                            <a href="https://jiav39.com" target="_blank">https://jiav40.com</a>
+                            色花堂最新地址
+                            <a href="https://sehua10.com" target="_blank">https://sehua14.com</a>
                         </li>
                         <li>
-                             4438x成人网备用地址
-                            <a href="https://jiav18.com" target="_blank">https://jiav18.com</a>
-                            <a href="https://jiav21.com" target="_blank">https://jiav21.com</a>
-			    <a href="https://jiav26.com" target="_blank">https://jiav26.com</a>
-			   <a href="https://jiav31.com" target="_blank">https://jiav31.com</a>
-			  <a href="https://jiav58.com" target="_blank">https://jiav58.com</a>
-			  <a href="https://jiav61.com" target="_blank">https://jiav61.com</a>
-			  <a href="https://jiav78.com" target="_blank">https://jiav78.com</a>
+                             色花堂备用地址
+                            <a href="https://sehua11.com" target="_blank">https://sehua11.com</a>
+                            <a href="https://sehua12.com" target="_blank">https://sehua12.com</a>
+			    <a href="https://sehua13.com" target="_blank">https://sehua13.com</a>
+			
                         </li>
                        
 
                     </ul>
                     <p>如果以上地址均无法打开，欢迎发送邮件告知： <br />
-                       diqiuzy@gmail.com<br />
-		       diqiudy@gmail.com<br />
+                       sehua99@gmail.com<br />
+		       sehua66@gmail.com<br />
                         会自动回复最新地址！</p>
                 </div>
             </div>
